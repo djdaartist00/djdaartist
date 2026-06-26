@@ -1,4 +1,6 @@
 # Introduction 
 **I'm a cool artist, I make music, and I strive to become something great one day and find people along the way.** 
+please send me things like fangames and hacked roms. 
+I want to mod games and emulate every game one day. 
 <img width="532" height="640" alt="9ACFCE07-9B8D-4F52-AAB6-8EE25AE22161" src="https://github.com/user-attachments/assets/8cfd803e-d292-433c-9077-c8082918e1ac" />
 
